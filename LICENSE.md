@@ -1,4 +1,4 @@
-#  
+#  Experience scary shawarma kiosk like never before with scary shawarma kiosk secret Scripts, the #1 Script. Includes undetectable and custom skins for
 
 
 
